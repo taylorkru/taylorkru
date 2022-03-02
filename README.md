@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @taylorkru
+- 👀 I’m interested in graphic design, web design & development, and fashion!
+- 🌱 I’m currently learning how to develop- beginning with JavaScript.
+- 📫 How to reach me ... IG: @taylorkru, LinkedIn: Taylor Krupinski
